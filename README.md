@@ -1,0 +1,1 @@
+# pseudocodigoEjercicio10
